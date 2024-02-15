@@ -2,8 +2,7 @@
 
 *Herbidog && Carnicat*
 
-Wanna take a look at my personal blog?  
-Here it is: [XFish's Blog](https://herbidog.cc) 
+[XFishalways's Blog](https://herbidog.cc) 
 
 ### About Myself
 
@@ -20,7 +19,7 @@ CTF On the Road
 ### Sports Aficionado
 
 Hala Madrid🦵🏻 
-Letsgo Pat🔴  
+Letsgo Chiefs🔴  
 Self-Commentator🤬  
 Analyzer ing🤩  
 
