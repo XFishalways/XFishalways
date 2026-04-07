@@ -19,7 +19,3 @@ Analyzer ing🤩
 AI Skipper  
 nparadigm申工智能🛫️  
 飞禽岛少年Lee Sedol👀  
-
-### Github Stats
-
-[![XFishalways's GitHub stats](https://github-readme-stats.vercel.app/api?username=XFishalways&show_icons=true&theme=dracula)](https://github.com/XFishalways/github-readme-stats)
