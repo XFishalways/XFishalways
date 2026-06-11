@@ -14,8 +14,7 @@ Spanish beginner ing🇪🇸
 NHL rookie puckhead🏒
 
 ### GoGoGo
-
-七年前的业余5段  
+ 
 AI Skipper  
 nparadigm申工智能🛫️  
 飞禽岛少年Lee Sedol👀  
