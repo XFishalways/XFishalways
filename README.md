@@ -10,8 +10,8 @@ RDFZ'18 | RDFZ'21 | SCU'25 | NTU'26
 
 Hala Madrid🦵🏻 
 Letsgo Chiefs🔴  
-Self-Commentator🤬  
-Analyzer ing🤩  
+Spanish beginner ing🇪🇸  
+NHL rookie puckhead🏒
 
 ### GoGoGo
 
